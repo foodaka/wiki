@@ -1,1 +1,1 @@
-Welcome to some information about whatever
+Welcome to wiki home 
